@@ -1,1 +1,2 @@
 
+# Today we agreed to choose the teamleader. As we agreed and succeed to choose one, our mission now to choose our project topic that we are going to work on. there are many idea here and there and our goal to agree on one of them and start working. I wish all of us will free their time two hours on friday and saturday to start our  project. Thank you very much.
